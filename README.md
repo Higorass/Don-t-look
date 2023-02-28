@@ -1,4 +1,6 @@
 Premissa do jogo
+
+
 Don't look será um jogo de terror, onde contara a história de dois gêmeos que vivem em paralelos diferentes, onde a partir de um fenômeno mistico eles descobrem a exitância um do outro, e acabam entrando em uma busca perigosa pra se encontrar .
 Os eventos ocorrerão um um orfanato, onde ao primeiro gêmeo (Theo) vivera no ano 2023. Uma velha mansão que aloja algumas crianças que não foram adotadas até seus 8 anos, onde Theo. Já a outra gemea (katie) iniciara sua busca por uma família em uma nova mansão, construída 1h da cidade na época de 1953, ela só não imaginava como sua família estaria tão perto e longe ao mesmo tempo.
 
@@ -17,11 +19,15 @@ Orfãos e trabalhadores do orfanato tentarão impedir esa missão dos dois.
 
 
 mapa
+
+
 A tela do pc será dividida em duas onde se passa em um antigo orfanato 89THEO0 e um orfanato novo) katie. andrão pelo orfanato, mas para passar em algumas fazer do orfanato katie e theo poderão trocar de lgar ao passarem pelo espelho. 
 THeo e katie ao decorrer do jogo encontraraão obejtos que o será necesssario para passar na outra epoca 
 espelho espanhaldo pelo mapa para realizar essa troca (não conseguem ficcar na mesma epoca ao mesmo tempo)
 
 REFERENCIAS
+
+
 Me baseio na mitologia grega, principalmete na hisoria de nico e beatris (filhos de hades), livros de PERCY JACKSON, uma pegada de OUTLANDLER, troca de locais e missoẽs igual algumas missoes do jogo do foguinho e da agua
 Jogo terá uma pegada de terror e suspense
 
