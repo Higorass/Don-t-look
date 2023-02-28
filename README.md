@@ -16,7 +16,9 @@ Katie e theo terão habilidade especial onde serão de grande ajuda ao decorrer 
 theo tem uma sensibiliade maior ao mundo dos mortos podendo ser o unico ao falar com mortos e fantasmas que aparecerão em meio ao jogo
 Katie consegue atravesar paredes que contem rachaduras.
 Theo e katie sonharão com uma porta que  tem no porão( eles sabem que é o porão pois no osnho esultam passos e barulhos do orfanto em cima de suas cabeças) com as mesmas gravuras dos espelho e diario, mas não tem chave apenas dopis locais para colocarem suas maos. Descobrirão que não é tão facio assim chegar so porão pois tudo ocorrerá de noite, onde nunca poderão ser  pegos.
-Orfãos e trabalhadores do orfanato tentarão impedir esa missão dos dois.
+Orfãos e trabalhadores do orfanato tentarão impedir essa missão dos dois.
+AO passsaar por salas do orfanato terçao que enfrentar monstrons, esse orfanato esta parcendo mais um labirinto do faunokkkkk
+Dracmas serão dropados de alguns fantasmas e ahcados , onde pederão comprar de espiritos (theo) e de oferendas as rachaduras em formato de deuses (katie), materiis de melhoria para equipamentos e de melhores materiais
 
 
 
@@ -35,6 +37,7 @@ Me baseio na mitologia grega, principalmete na hisoria de nico e beatris (filhos
 Jogo terá uma pegada de terror e suspense
 
 FINANCEIRO!!
+Vendas de dracmas que serão as moedas do jogo, moedas que espíritos trocarão por itens especiais, propagando ao iniciar o jogo.
 
 
 
