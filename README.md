@@ -1,1 +1,43 @@
 Premissa do jogo
+Don't look será um jogo de terror, onde contara a história de dois gêmeos que vivem em paralelos diferentes, onde a partir de um fenômeno mistico eles descobrem a exitância um do outro, e acabam entrando em uma busca perigosa pra se encontrar .
+Os eventos ocorrerão um um orfanato, onde ao primeiro gêmeo (Theo) vivera no ano 2023. Uma velha mansão que aloja algumas crianças que não foram adotadas até seus 8 anos, onde Theo. Já a outra gemea (katie) iniciara sua busca por uma família em uma nova mansão, construída 1h da cidade na época de 1953, ela só não imaginava como sua família estaria tão perto e longe ao mesmo tempo.
+
+IDEIA GERAL DO JOGO
+O jogo contaria a historia de doisa gemeos que estão em epocas diferente, mas de mesmo  logal. Onde quando entram no orfanato acabam ficando no mesmo quarto, theo encontra o diario de katie, mas para sua surpresa o diario só esta marcado com a data de hoje, ao anoitecer theo volta a ver o diario e ve que ele está sendo escrito, vendo em um antifo espelho em seu quarto (que não estava la quando elel chegou) theo consegue ver o reflexo de katie escrevendo no diario.
+Katie e theo comecam a interagir escrevendo do diario(colocar som de rabiscos na hora de conversas e apresentar uma folha com as conevrsas dos dois no momento)theo e katie descobrem que nasceream no mesmo dia, então os dois vão em busca para saber um pouco mais do que está acontecendo. Theo em 2023 e katie em 1953, o jogo fara com que aççoes de katie ajuda theo em momento de socorro.
+A busca para saber quem são de verdade, como o diario e espelhos estão conectados entre as epocas fara eles descobriem areas do orfanato escondidas e ja fechadas ( para theo). O orfanato de theo tera consequencia realizadas por katie em sua época(quartos fechado que pegaram fogo, portas fechadas que para katie estarão abertas, corredore que para teo estão em isolamento e para katie não) Theo e katie irão ter que trocar de posiçao pois katie tera chaves que abrirão portas para theo, theo tera altura e agilidade que katie não tem.
+Theo(tera agilidade, altura, algumas ferramentas da atualidade, etc)
+Katie (Terá uma menor altura para passar em locais menores para theo, chaves dos quartos fechados para theo)
+Katie e theo terão habilidade especial onde serão de grande ajuda ao decorrer do jogo
+theo tem uma sensibiliade maior ao mundo dos mortos podendo ser o unico ao falar com mortos e fantasmas que aparecerão em meio ao jogo
+Katie consegue atravesar paredes que contem rachaduras.
+Theo e katie sonharão com uma porta que  tem no porão( eles sabem que é o porão pois no osnho esultam passos e barulhos do orfanto em cima de suas cabeças) com as mesmas gravuras dos espelho e diario, mas não tem chave apenas dopis locais para colocarem suas maos. Descobrirão que não é tão facio assim chegar so porão pois tudo ocorrerá de noite, onde nunca poderão ser  pegos.
+Orfãos e trabalhadores do orfanato tentarão impedir esa missão dos dois.
+
+
+
+mapa
+A tela do pc será dividida em duas onde se passa em um antigo orfanato 89THEO0 e um orfanato novo) katie. andrão pelo orfanato, mas para passar em algumas fazer do orfanato katie e theo poderão trocar de lgar ao passarem pelo espelho. 
+THeo e katie ao decorrer do jogo encontraraão obejtos que o será necesssario para passar na outra epoca 
+espelho espanhaldo pelo mapa para realizar essa troca (não conseguem ficcar na mesma epoca ao mesmo tempo)
+
+REFERENCIAS
+Me baseio na mitologia grega, principalmete na hisoria de nico e beatris (filhos de hades), livros de PERCY JACKSON, uma pegada de OUTLANDLER, troca de locais e missoẽs igual algumas missoes do jogo do foguinho e da agua
+Jogo terá uma pegada de terror e suspense
+
+RegraS
+
+
+
+
+
+
+
+
+
+
+
+
+Spoiler
+
+Katie e theo na verdade são filhos de hades ( nico e beatriz)
