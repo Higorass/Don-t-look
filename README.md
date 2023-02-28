@@ -20,6 +20,7 @@ Orfãos e trabalhadores do orfanato tentarão impedir esa missão dos dois.
 
 
 
+
 mapa
 
 
@@ -33,9 +34,7 @@ REFERENCIAS
 Me baseio na mitologia grega, principalmete na hisoria de nico e beatris (filhos de hades), livros de PERCY JACKSON, uma pegada de OUTLANDLER, troca de locais e missoẽs igual algumas missoes do jogo do foguinho e da agua
 Jogo terá uma pegada de terror e suspense
 
-RegraS
-
-
+FINANCEIRO!!
 
 
 
@@ -49,3 +48,4 @@ RegraS
 Spoiler
 
 Katie e theo na verdade são filhos de hades ( nico e beatriz)
+Quando eles abrem a porta é o boss e assim os dois conseguem estão em mesmo espaçoe e tempo, tendo que enfrentar o boss com materiais com o decorrer do jogo, o boss será alguns series mitologicos, katie e theo terão um poderem quando junto.
