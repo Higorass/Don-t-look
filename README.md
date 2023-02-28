@@ -1,0 +1,1 @@
+Premissa do jogo
